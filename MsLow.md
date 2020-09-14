@@ -38,3 +38,8 @@ Ms Low sayings:
 - can someone answer? Why no one answer? 'silence' (某某人) can you tell me? 'silence' hello??
 - y = mx + c
 -no working no mark
+-Last time I actually play basketball...(1G, Siyuan)
+:trollface:
+
+# Got Emmmm
+:ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand::ok_hand:
